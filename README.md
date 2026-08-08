@@ -16,3 +16,8 @@ Generative AI & LLMs
 AI Agents
    ↓
 Advanced AI Systems
+
+
+💎 "Learn. Build. Improve. Repeat."
+
+⭐ Thanks for visiting my profile! 🍁
